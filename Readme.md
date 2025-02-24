@@ -1,4 +1,4 @@
-https://novelshare-fey3ybur3q-an.a.run.app/dfnow.html?shareDate=20250224&ggc=51053164%257C3%257C1%257C935&t=65000
+https://novelshare-fey3ybur3q-an.a.run.app/dfnow.html?shareDate=20250224&ggc=51053164%257C3%257C1%257C935&t=6500000
 
 
 You are one tap away from earning your ROX! Use my link to start for free. Install Robox and earn valuable tokens in one tap. 
